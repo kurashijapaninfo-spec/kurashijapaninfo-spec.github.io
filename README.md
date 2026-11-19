@@ -1,1 +1,0 @@
-# kurashijapaninfo-spec.github.io
